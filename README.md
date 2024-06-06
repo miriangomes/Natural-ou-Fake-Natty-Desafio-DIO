@@ -12,6 +12,6 @@ Dei o comando "Crie um ebook com o nome "Natural ou falso Natty? Como usar as IA
 Em seguida dei o comando "Imagem de desempenho físico natural com IA" na Copilot.
 
 ## 🚀 Resultados
-Resultados em [(https://drive.google.com/drive/folders/18_7TR9CUP78AD_brS6ugjz8M-PkUGAPI?usp=sharing)]
+Resultados em (https://drive.google.com/drive/folders/18_7TR9CUP78AD_brS6ugjz8M-PkUGAPI?usp=sharing)
 
 
